@@ -1,2 +1,2 @@
-# Covid19-Break
+# Covid19-Out-Break and social activities
 what to do to survive the pandemic .
